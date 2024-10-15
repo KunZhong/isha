@@ -17,3 +17,21 @@
 * wav(er)：波浪，摇晃
 ---
 ![](images/2024/10/2024.10.13.png)
+
+---
+- 10月14日
+- 当你意识到自己终有一死，你就会以最大的热情去生活。
+- When you become conscious of your mortality, you will live life with maximum zest.
+
+* mortality：终有一死、“必死性”、“生命的有限”、“死亡数量”或“死亡率”。
+- 1. **死亡率**：指在一定时间内死亡人数与人口总数的比率。这个概念在人口统计学、流行病学、生物学等多个领域中都有应用。例如，某个地区的婴儿死亡率（infant mortality rate）或肺癌死亡率（mortality from lung cancer）。
+- 2. **必死性**：指生物无法逃脱死亡的命运，这是一个哲学或概念性的用法，强调所有生物最终都会死亡的事实。例如，"The fear of mortality is a common human emotion."（对必死性的恐惧是一种普遍的人类情绪。）。
+- 3. **死亡数**：在某些情况下，"mortality" 也可以直接指代死亡的人数，尤其是在讨论特定事件或疾病导致的死亡时。
+- 4. **医学领域中的病死率**：在医学或健康领域，"mortality" 特指病死率，即某地区一定时期内由于某病死亡人数占该地区该时期内患有该病的人数的比例。它侧重于描述疾病在感染或确诊人群中的死亡情况。
+* zest：“热情”、“风味”、“活力”、“刺激。
+- 1. **热情**：指对某事的强烈兴趣或热情。例如，"She has a great zest for life."（她对生活充满热情。）
+- 2. **风味**：在烹饪中，"zest" 指的是食物的强烈风味，尤其是通过添加香料或柑橘类水果的皮来增加的风味。例如，"The dish was enhanced with the zest of lemon."（这道菜因添加了柠檬皮而更加美味。）
+- 3. **活力**：指充满活力或精力的状态。例如，"The team played with zest and won the game."（球队充满活力地比赛并赢得了胜利。）
+- 4. **刺激**：在某些情况下，"zest" 也可以指给某物增加刺激或兴奋感。例如，"The game added zest to the evening."（游戏为这个夜晚增添了刺激。）
+---
+![](images/2024/10/2024.10.14.png)
