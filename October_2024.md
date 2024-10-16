@@ -35,3 +35,10 @@
 - 4. **刺激**：在某些情况下，"zest" 也可以指给某物增加刺激或兴奋感。例如，"The game added zest to the evening."（游戏为这个夜晚增添了刺激。）
 ---
 ![](images/2024/10/2024.10.14.png)
+
+---
+- 10月15日
+- 一旦你体验到自己超越了身体和头脑的局限，就没有恐惧这回事。
+- Once you experience yourself beyond your physical and mental limitations, there is no such thing as fear. 
+---
+![](images/2024/10/2024.10.15.png)
