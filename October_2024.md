@@ -42,3 +42,16 @@
 - Once you experience yourself beyond your physical and mental limitations, there is no such thing as fear. 
 ---
 ![](images/2024/10/2024.10.15.png)
+
+---
+- 10月16日
+- 太多的人感到饥饿，并不是因为食物匮乏，只是因为人的心中缺乏爱和关怀。
+- Too many people are hungry not because there is a dearth of Food. It is simply because there is a dearth of Love and Care in human hearts. 
+
+- "Dearth"：这个词来源于古英语，意指某物的缺乏或不足。它通常用来描述数量上的短缺，尤其是在人们期望或需要更多时。
+
+- 1. **a dearth of**：后面通常跟缺乏的对象，如"a dearth of opportunities"（机会的缺乏）。
+- 2. Despite the dearth of resources, the community managed to thrive.（尽管资源匮乏，这个社区还是设法繁荣起来。）
+- 3. The dearth of affordable housing is a major concern in many cities.（负担得起的住房的缺乏是许多城市的主要关切。）
+---
+![](images/2024/10/2024.10.16.png)
