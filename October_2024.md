@@ -55,3 +55,17 @@
 - 3. The dearth of affordable housing is a major concern in many cities.（负担得起的住房的缺乏是许多城市的主要关切。）
 ---
 ![](images/2024/10/2024.10.16.png)
+
+---
+- 10月17日
+- 内在工程不是一种哲学、意识形态或宗教。它是一项实现幸福和自我转化的技术。
+- Inner Engineering is not a philosophy, ideology, or religion. It is a technology for Wellbeings and Self-Transformation. 
+
+	- 1.philosophy：哲学
+	- 2.ideology：意识形态
+	- 3.religion：宗教
+	- 4.Wellbeings：幸福
+	- 5.Self-Transformation：自我转化
+
+---
+![](images/2024/10/2024.10.17.png)
