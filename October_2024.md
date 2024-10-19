@@ -69,3 +69,15 @@
 
 ---
 ![](images/2024/10/2024.10.17.png)
+
+---
+- 10月18日
+- 没有哪个工作本身是充满压力的。导致压力的是我们面对挑战性的情形的强迫性反应。
+- No job is inherently stressful. What causes stress is our compulsive reaction to challenging situations . 
+
+	- 1.inherently：固有地、内在地
+	- 2.compulsive：强迫性的
+	- 3.reaction：反应
+
+---
+![](images/2024/10/2024.10.18.png)
