@@ -81,3 +81,24 @@
 
 ---
 ![](images/2024/10/2024.10.18.png)
+
+---
+- 10月19日
+- 你在头脑层面产生的每个想法、每次回响都会改变你体内的化学反应。
+- Every thought, every reverberation you create on the level of the mind changes the chemistry in your body . 
+
+	- 1.reverberation：回响
+
+---
+![](images/2024/10/2024.10.19.png)
+
+---
+- 10月20日
+- 灵性进程不是要远离生活。它是利用生活中的一切去解放自我，而不是纠缠自我。
+- The spiritual process is not about moving away from life. It is to use everything in life not to entangle yourself but to liberate yourself.
+
+	- 1.liberate：解放
+	- 2.entangle：纠缠
+
+---
+![](images/2024/10/2024.10.20.png)
