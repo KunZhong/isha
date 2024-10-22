@@ -102,3 +102,17 @@
 
 ---
 ![](images/2024/10/2024.10.20.png)
+
+---
+- 10月21日
+- 如果有全然的清晰，便无需勇气，因为清晰会带你走过。
+- If there is total clarity, there is no need for courage because clarity will carry you across.
+---
+![](images/2024/10/2024.10.21.png)
+
+---
+- 10月22日
+- 生命的目的在于体验其最完全的深度与维度。
+- The very purpose of life is to experience life in its fullest depth and dimension.
+---
+![](images/2024/10/2024.10.22.png)
