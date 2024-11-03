@@ -116,3 +116,74 @@
 - The very purpose of life is to experience life in its fullest depth and dimension.
 ---
 ![](images/2024/10/2024.10.22.png)
+
+---
+- 10月23日
+- 喜悦不是向外寻求的——它是内在的。如果你不扰乱你的心智，你自然是喜悦的。
+- Joy is not to be sought outside - it is intrinsic. If you do not mess up your mind, you will naturally be joyful.
+---
+![](images/2024/10/2024.10.23.png)
+
+
+---
+- 10月24日
+- 你是宇宙中的一粒微尘。而这粒微尘却有蕴含整个宇宙的潜力。
+- You are a tiny speck in the universe. But this tiny speck has the potential to contain the whole cosmos.
+---
+![](images/2024/10/2024.10.24.png)
+
+---
+- 10月25日
+- 如果你将自己的身体、头脑、能量和情感培养到一定的成熟度，冥想会自然地绽放。
+- If you cultivate your body, mind, energy, and emotions to a certain level of maturity, meditaiton will naturally flower.
+---
+![](images/2024/10/2024.10.25.png)
+
+
+---
+- 10月26日
+- 在深度地、有意识地融入你周围的一切时，没有纠缠，只有喜悦。
+- In deep, conscious involvement with everything around you, there is no entanglement; there is just joy.
+---
+![](images/2024/10/2024.10.26.png)
+
+
+---
+- 10月27日
+- 一旦你享受到你本质的内在愉悦，外在的欢愉就会显得肤浅。
+- Once you enjoy the inner pleasures of your being, external pleasures will seem rudimentary.
+---
+![](images/2024/10/2024.10.27.png)
+
+
+---
+- 10月28日
+- Karma(业)不在于你的行为，而在于你的意志。它不是你生命的内容，而是创造业的背景。
+- Karma is not in your action - it is in your volition. It is not the content of your life; it is the context which creates Karma.
+---
+![](images/2024/10/2024.10.28.png)
+
+
+---
+- 10月29日
+- 人生最大的成就是去做远大过你自己的事情。
+- The greatest fulfillment in life is to do something which is much larger than yourself.
+---
+![](images/2024/10/2024.10.29.png)
+
+
+---
+- 10月30日
+- 你的健康与疾病，你的喜乐与痛苦，都来自内在。如果你想要幸福，是时候转向内在了。
+- Your wellness and your illness, your joy and your misery, all come from within. If you want wellbeing, it is time to turn inward.
+---
+![](images/2024/10/2024.10.30.png)
+
+
+---
+- 10月31日
+- 无论你选择走哪条路，让我成为照亮你道路的光。愿这个排灯节点亮你生命的内在和外在。爱与祝福
+- Whatever path you choose to walk, let me the Light that illuminates your way. May this Deepavali Light up your life within and without. Love & Blessings.
+---
+![](images/2024/10/2024.10.31.png)
+
